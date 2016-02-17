@@ -1,1 +1,1 @@
-#My record of lrarning janpanese
+#My record of learning janpanese
